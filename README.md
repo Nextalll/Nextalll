@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Nextalll
+- I'll post some code i'll do something in school or at home.
